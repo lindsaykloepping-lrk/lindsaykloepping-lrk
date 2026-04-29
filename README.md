@@ -1,4 +1,4 @@
-# Hi, I'm [Name] 👋
+# Hi, I'm Lindsay 👋
 
 I'm a product and UX leader who's spent 20+ years helping teams build things that matter — and the last few deep in the AI-native delivery space.
 
